@@ -31,7 +31,7 @@
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E6%97%85%E9%A6%861.jpg)
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E5%AE%A2%E6%A0%881.jpg)
 
-旅馆里还自带个博物馆，收藏了老板家历代的一些生活用品和留下来的文献（分家的协议，田契等等，竟然还有本春宫图，被我无意中翻出来了）
+旅馆里还自带个博物馆，收藏了老板家历代的一些生活用品和留下来的文献（分家的协议，田契等等）
 
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E5%AE%A2%E6%A0%88.jpg)
 
@@ -47,6 +47,7 @@
 
 一路也是石头路，大概走了一公里的样子，有个“腾蛟，起凤”木牌坊，牌坊正面写着腾蛟，背面写的是起凤。
 
+![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%810.jpg)
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%814.jpg)
 
 媳妇在这里玩自拍，留下了一张“大长腿”
@@ -60,7 +61,6 @@
 接着走到了一个不知名的楼，对联和门上的图案挺有意思的，两边是鹿马羊象，中间是麒麟。
 
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%8112.jpg)
-![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%819.jpg)
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%8110.jpg)
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%8111.jpg)
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%8113.jpg)
@@ -79,6 +79,7 @@
 
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%817.jpg)
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%818.jpg)
+![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E7%8E%89%E7%9A%87%E9%98%819.jpg)
 
 最后去了武庙，里面有关羽周仓和关平的像，外面两侧两幅画，分别是千里走单骑和桃园结义
 
@@ -95,3 +96,9 @@
 ![image](http://opisq79t0.bkt.clouddn.com/%E5%A4%A7%E7%90%86-%E8%AF%BA%E9%82%93-%E5%A4%AA%E6%9E%81%E5%9B%BE.jpg)
 
 看完下山直奔云龙县城一家叫虎山羊肉馆的餐馆吃饭，不太好找，不过味道超级棒，是黑山羊肉火锅，两个人连一斤羊肉都没吃掉。顺带提一下，依旧一个客人都没有。。吃完午饭就往大理古城走了，中间又停车休息了两次，磨磨蹭蹭到大理古城已经晚上七点了，赶紧到酒店住下，酒店叫洱海门1号酒店，很推荐。
+
+#### 崇圣寺三塔
+
+
+
+
