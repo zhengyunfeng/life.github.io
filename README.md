@@ -11,3 +11,5 @@
 [天然酵母&&酸面包](https://zhengyunfeng.github.io/life.github.io/cooking/sourdough)
 
 [轻乳酪蛋糕&&蛋糕卷](https://zhengyunfeng.github.io/life.github.io/cooking/cake)
+
+[老婆饼](https://zhengyunfeng.github.io/life.github.io/cooking/laopaobing)
