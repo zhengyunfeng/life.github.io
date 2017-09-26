@@ -13,3 +13,5 @@
 [轻乳酪蛋糕&&蛋糕卷](https://zhengyunfeng.github.io/life.github.io/cooking/cake)
 
 [老婆饼](https://zhengyunfeng.github.io/life.github.io/cooking/laopobing)
+
+[广式蛋黄莲蓉月饼](https://zhengyunfeng.github.io/life.github.io/cooking/mooncake)
